@@ -16,4 +16,9 @@ Visit our website: https://wordsscramblegame.com/
 
 ## Website
 https://wordsscramblegame.com/
+## Play More Word Scramble Games
+
+Looking for fun word puzzles? Visit our website to play free online word scramble games.
+
+[Play Word Scramble Games](https://wordsscramblegame.com/)
 
